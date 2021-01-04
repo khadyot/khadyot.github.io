@@ -1,1 +1,0 @@
-# khadyot.github.io
